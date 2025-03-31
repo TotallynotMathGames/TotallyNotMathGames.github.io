@@ -1,2 +1,0 @@
-# TotallyNotMathGames.github.io
-Sup
